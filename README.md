@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @st4thanchick23
+- 👋 Hi, I’m @st3ph1nc1
 - 👀 I’m interested i n    
 - 🌱 I’m currently learning foreign language 
 - 💞️ I’m looking to collaborate on you give me free food 
