@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @st4thanchick23
-- 👀 I’m interested in survival games like rust            by sqbl
+- 👀 I’m interested i n    
 - 🌱 I’m currently learning foreign language 
 - 💞️ I’m looking to collaborate on you give me free food 
-- 📫 How to reach me telegram @lbqss
+- 📫 How to reach me telegram @lbqss #nope
 - 😄 Pronouns: .............
 - ⚡ Fun fact: big fun of rust
 
